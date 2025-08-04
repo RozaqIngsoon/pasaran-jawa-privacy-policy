@@ -1,4 +1,4 @@
-# Kebijakan Privasi untuk Pasaran Jawa
+# Kebijakan Privasi Pasaran Jawa
 
 **Terakhir diperbarui:** 2 Agustus 2025
 
